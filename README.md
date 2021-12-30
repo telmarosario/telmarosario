@@ -6,6 +6,8 @@
 <br>
 📫 You can reach me at telmarosariox@gmail.com or message me on <a href="https://www.linkedin.com/in/telmarosario99/">LinkedIn.</a>
 <br>
+👀 Checkout my portfolio <a href="https://telmarosario.netlify.app/">here!</a>
+<br>
 😄 Pronouns: She/her
 <br>
 ⚡ My hobbies are martial arts and reading! 
